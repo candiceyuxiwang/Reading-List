@@ -2,3 +2,4 @@
 
 People who have read it by May 14:
  * [Add your name here when you've finished]
+ Candice Wang
